@@ -9,6 +9,7 @@ This is a list of links to the various social media platforms where you can join
 
 ## ISpace Foundation
 * [Twitter](https://twitter.com/iSpaceGh)
+* [Whatsapp](https://chat.whatsapp.com/61nmlDjVLB655C0Y8NnAYq)
 
 ## Let's Route
 * [Whatsapp](https://chat.whatsapp.com/FUhICZ5pGZHD451iaWAjhV)
